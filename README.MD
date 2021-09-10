@@ -1,0 +1,1 @@
+curso ruim para iniciantes
